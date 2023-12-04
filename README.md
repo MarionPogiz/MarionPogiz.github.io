@@ -13,7 +13,7 @@ But As Of Right Now One of the most talked about unit in the game is a unit call
 
 ![ASTD](https://static.wikia.nocookie.net/allstartd/images/1/16/Mysterious_X_%28Honored%29_%28Pose%29.png/revision/latest/scale-to-width-down/350?cb=20231107043838)
 
-Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious Cube is an evolution item based on Prison Realm from Jujutsu Kaisen. MysteriousCube is a reward from completing the Six Eyes raid.It is used to evolve Mysterious X (Honored), Mysterious X (Shibuya), and The Lorax Like Other Tower Defense Games You Can Evolve it By getting certain units and items to evolved it to its final form Now for Gojo There Are 3 Evolutions To get it to its maximum potential 
+Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious Cube is an evolution item based on Prison Realm from Jujutsu Kaisen. Mysterious Cube is a reward from completing the Six Eyes raid.It is used to evolve Mysterious X (Honored), Mysterious X (Shibuya), and The Lorax Like Other Tower Defense Games You Can Evolve it By getting certain units and items to evolved it to its final form Now for Gojo There Are 3 Evolutions To get it to its maximum potential 
 
 
 
@@ -26,6 +26,7 @@ To Evolve this unit you will be needing 4 Mystreious Cubes,The Strongest Curse,A
 
 ![Final Arc](https://pbs.twimg.com/media/F_8iUGCaYAA1Mhk?format=jpg&name=small)
 
+This Is reccomended for the beginners watch this video below 
 
 
-
+[![Beginners](jQ8dZwTw8wQ)](https://www.youtube.com/watch?v=jQ8dZwTw8wQ)
