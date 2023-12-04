@@ -9,9 +9,9 @@ What Is All Star Tower Defense You May Ask well All Star Tower Defense is, as th
 
 Well As Of Right now the game gets about 20k+ Players On Normal Day But When It updates it usually gets around 50k+ Players Daily
 
-But As Of Right Now One of the most talked about unit in the game is a unit called gojo satoru or to avoid copyright its called Mysterious X (Honored) 
+But As Of Right Now One of the most talked about unit in the game is a unit called gojo satoru or to avoid copyright its called Mysterious X (Honored) sadly i could not find another jpg picture of the unit but again think of it as blocky besides the hair and add a little bit of blood on his face 
 
-![ASTD](https://pbs.twimg.com/media/EnVzl1FXcAEZBve?format=jpg&name=small)
+![ASTD]([https://pbs.twimg.com/media/EnVzl1FXcAEZBve?format=jpg&name=small](https://pbs.twimg.com/media/FBv1g1qUcAAsdb_?format=jpg&name=360x360))
 
 Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious Cube is an evolution item based on Prison Realm from Jujutsu Kaisen. Mysterious Cube is a reward from completing the Six Eyes raid.It is used to evolve Mysterious X (Honored), Mysterious X (Shibuya), and The Lorax Like Other Tower Defense Games You Can Evolve it By getting certain units and items to evolved it to its final form Now for Gojo There Are 3 Evolutions To get it to its maximum potential 
 
