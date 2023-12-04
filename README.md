@@ -17,13 +17,14 @@ Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious 
 
 
 
-
 The Next Version Of Mysterious X (Honored) is Mysterious X (Shibuya) Which Unfortunately i Can't find a picture in it ingame that's a jpg but Think of this picture below as bloky
 
 
 ![Shibuya](https://pbs.twimg.com/media/GAUlN05bIAEI7m2?format=jpg&name=360x360)
 
+To Evolve this unit you will be needing 4 Mystreious Cubes,The Strongest Curse,And Curses Which is obtainable from completing the story In world 1 Here is the link [How To Evolve Gojo Shibuya](https://allstartd.fandom.com/wiki/Mysterious_X_(Final)) The Website Will tell u the basis or basically the instructions and all the things you will need here is the final product after u evolve it to its maximum potential 
 
+![Final Arc](https://pbs.twimg.com/media/F_8iUGCaYAA1Mhk?format=jpg&name=small)
 
 
 
