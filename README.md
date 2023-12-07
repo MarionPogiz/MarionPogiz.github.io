@@ -29,4 +29,4 @@ To Evolve this unit you will be needing 4 Mystreious Cubes,The Strongest Curse,A
 This Is reccomended for the beginners watch this video below 
 
 
-[![Beginners](gqDrg8xbHXQ)](https://www.youtube.com/watch?v=gqDrg8xbHXQ)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/af2EtkXlurc?si=aUTdsLem9fPpk4S_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
