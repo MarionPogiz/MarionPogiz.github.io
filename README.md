@@ -9,24 +9,24 @@ What Is All Star Tower Defense You May Ask well All Star Tower Defense is, as th
 
 Well As Of Right now the game gets about 20k+ Players On Normal Day But When It updates it usually gets around 50k+ Players Daily
 
-But As Of Right Now One of the most talked about unit in the game is a unit called gojo satoru or to avoid copyright its called Mysterious X (Honored) sadly i could not find another jpg picture of the unit but again think of it as blocky besides the hair and add a little bit of blood on his face 
+But As Of Right Now One of the most talked about unit in the game is a unit called gojo satoru or to avoid copyright its called Mysterious X (Honored) sadly i could not find another jpg picture of the unit but again think of it as blocky besides the hair and add a little bit of blood on his face. 
 
 ![ASTD](https://pbs.twimg.com/media/FBv1g1qUcAAsdb_?format=jpg&name=360x360)
 
-Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious Cube is an evolution item based on Prison Realm from Jujutsu Kaisen. Mysterious Cube is a reward from completing the Six Eyes raid.It is used to evolve Mysterious X (Honored), Mysterious X (Shibuya), and The Lorax Like Other Tower Defense Games You Can Evolve it By getting certain units and items to evolved it to its final form Now for Gojo There Are 3 Evolutions To get it to its maximum potential 
+Here Are The Requirements To Evolve Him you need 3 mystreious cubes. Mysterious Cube is an evolution item based on Prison Realm from Jujutsu Kaisen. Mysterious Cube is a reward from completing the Six Eyes raid.It is used to evolve Mysterious X (Honored), Mysterious X (Shibuya), and The Lorax Like Other Tower Defense Games You Can Evolve it By getting certain units and items to evolved it to its final form Now for Gojo There Are 3 Evolutions To get it to its maximum potential. 
 
 
 
-The Next Version Of Mysterious X (Honored) is Mysterious X (Shibuya) Which Unfortunately i Can't find a picture in it ingame that's a jpg but Think of this picture below as bloky
+The Next Version Of Mysterious X (Honored) is Mysterious X (Shibuya) Which Unfortunately i Can't find a picture in it ingame that's a jpg but Think of this picture below as bloky.
 
 
 ![Shibuya](https://pbs.twimg.com/media/GAUlN05bIAEI7m2?format=jpg&name=360x360)
 
-To Evolve this unit you will be needing 4 Mystreious Cubes,The Strongest Curse,And Curses Which is obtainable from completing the story In world 1 Here is the link [How To Evolve Gojo Shibuya](https://allstartd.fandom.com/wiki/Mysterious_X_(Final)) The Website Will tell u the basis or basically the instructions and all the things you will need here is the final product after u evolve it to its maximum potential 
+To Evolve this unit you will be needing 4 Mystreious Cubes,The Strongest Curse,And Curses Which is obtainable from completing the story In world 1 Here is the link [How To Evolve Gojo Shibuya](https://allstartd.fandom.com/wiki/Mysterious_X_(Final)) The Website Will tell u the basis or basically the instructions and all the things you will need here is the final product after u evolve it to its maximum potential.
 
 ![Final Arc](https://pbs.twimg.com/media/F_8iUGCaYAA1Mhk?format=jpg&name=small)
 
-This Is reccomended for the beginners watch this video below 
+This Is reccomended for the beginners watch this video below.
 
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/af2EtkXlurc?si=aUTdsLem9fPpk4S_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
